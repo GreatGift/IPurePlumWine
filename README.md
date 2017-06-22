@@ -7,6 +7,7 @@ IPure Plum Wine shines at Spirits Selection
 
 哪裡買咖啡酒? 奇士安咖啡酒醇濃馥郁，清新回味
 Line: https://line.me/R/ti/p/%40stg7085o 
+http://www.umewine.com.tw/basewinebakingwine.html
 ume.wine@msa.hinet.net 
 
 奇士安咖啡酒只需一般咖啡酒的少量用量，可降低您提拉米蘇蛋糕大量成本 
@@ -25,6 +26,7 @@ ume.wine@msa.hinet.net
 
 哪裡買烘焙酒、基酒?
 Email:umew.tw@gmail.com Line: @stg7085o 
+http://www.umewine.com.tw/basewinebakingwine.html
 https://line.me/R/ti/p/%40stg7085o 
 官方網站：www.umewine.com.tw 
 粉絲團：ipureumewine 
