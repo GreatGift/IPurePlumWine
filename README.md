@@ -1,6 +1,7 @@
 # IPurePlumWine
 IPure Plum Wine shines at Spirits Selection 
-工商黃頁　哪裡買烘焙用酒	Email:umew.tw@gmail.com Line: @stg7085o https://line.me/R/ti/p/%40stg7085o 官方網站：www.umewine.com.tw 粉絲團：ipureumewine PChome商店:http://www.pcstore.com.tw/ipure/ 地址：新北市新莊區五權二路20號4樓之1 統一編號:80596684 Line: @stg7085o https://line.me/R/ti/p/%40stg7085o Ume Enterprise Co.,ltd 4F.-1, No.20, Wuquan 2nd Rd., Xinzhuang Dist.,New Taipei City, Taipei, Taiwan Ume Enterprise Co.,ltd 24892 New Taipei City Taiwan 服務時間：週一至週五上班時間, 週末公休 郵遞區號:24892 地址：新北市新莊區五權二路20號4樓之1 優米企業股份有限公司 登記機關 新北市政府 服務類別：F102030 菸酒批發業 艾波兒 比利時布魯塞爾世界金牌 艾波兒咖啡酒、奇士安烘焙酒咖啡酒 比利時布魯塞爾世界金牌艾波兒梅酒同系列製程，免關稅，快速到貨 典雅清澈，自然純潔，最大化激發食材香氣 直火蒸餾香氣純淨馥郁，高級水果釀製低糖度烈酒，天然無負擔
+ If you want to have the wine experience with the most appealing taste, IPure is the best choice for you.
+
 
 『典雅、清新、爽口，300 元有找的烈酒基酒』	Line: https://line.me/R/ti/p/%40stg7085o 
 奇士安咖啡酒只需一般咖啡酒的少量用量，可降低您提拉米蘇蛋糕大量成本 ume.wine@msa.hinet.net 
@@ -11,3 +12,7 @@ IPure Plum Wine shines at Spirits Selection
 《奇士安草莓酒》爽口草莓口感，激發而不制約甜點自然香味 浪漫醺醉感覺令人回味無窮
 比利時布魯塞爾世界金牌艾波兒梅酒同系列製程，免關稅，快速到貨
 優米企業股份有限公司 
+
+
+哪裡買烘焙酒、基酒、蒸餾酒、咖啡酒、烘焙用酒？
+Email:umew.tw@gmail.com Line: @stg7085o https://line.me/R/ti/p/%40stg7085o 官方網站：www.umewine.com.tw 粉絲團：ipureumewine PChome商店:http://www.pcstore.com.tw/ipure/ 地址：新北市新莊區五權二路20號4樓之1 統一編號:80596684 Line: @stg7085o https://line.me/R/ti/p/%40stg7085o Ume Enterprise Co.,ltd 4F.-1, No.20, Wuquan 2nd Rd., Xinzhuang Dist.,New Taipei City, Taipei, Taiwan Ume Enterprise Co.,ltd 24892 New Taipei City Taiwan 服務時間：週一至週五上班時間, 週末公休 郵遞區號:24892 地址：新北市新莊區五權二路20號4樓之1 優米企業股份有限公司 登記機關 新北市政府 服務類別：F102030 菸酒批發業 艾波兒 比利時布魯塞爾世界金牌 艾波兒咖啡酒、奇士安烘焙酒咖啡酒 比利時布魯塞爾世界金牌艾波兒梅酒同系列製程，免關稅，快速到貨 典雅清澈，自然純潔，最大化激發食材香氣 直火蒸餾香氣純淨馥郁，高級水果釀製低糖度烈酒，天然無負擔
