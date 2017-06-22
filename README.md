@@ -1,6 +1,7 @@
-# IPurePlumWine
+# 調酒基酒、烘焙用酒 世界金牌艾波兒 奇士安咖啡酒
+調酒基酒、烘焙用酒 世界金牌艾波兒 奇士安咖啡酒
 IPure Plum Wine shines at Spirits Selection 
- If you want to have the wine experience with the most appealing taste, IPure is the best choice for you.
+If you want to have the wine experience with the most appealing taste, IPure is the best choice for you.
 
 
 『典雅、清新、爽口，300 元有找的烈酒基酒』	
