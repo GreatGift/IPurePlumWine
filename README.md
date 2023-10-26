@@ -1,4 +1,4 @@
-# 調酒基酒、烘焙用酒 世界金牌艾波兒 奇士安咖啡酒
+# 調酒基酒、烘焙用酒 世界金牌艾波兒 奇士安咖啡酒 Ume Wine Co., Ltd.
 調酒基酒、烘焙用酒 世界金牌艾波兒 奇士安咖啡酒
 IPure Plum Wine shines at Spirits Selection 
 If you want to have the wine experience with the most appealing taste, IPure is the best choice for you.
@@ -7,9 +7,8 @@ If you want to have the wine experience with the most appealing taste, IPure is 
 『典雅、清新、爽口，300 元有找的烈酒基酒』	
 
 哪裡買咖啡酒? 奇士安咖啡酒醇濃馥郁，清新回味
-Line: https://line.me/R/ti/p/%40stg7085o 
+umew.tw@gmail.com
 http://www.umewine.com.tw/basewinebakingwine.html
-ume.wine@msa.hinet.net 
 
 奇士安咖啡酒只需一般咖啡酒的少量用量，可降低您提拉米蘇蛋糕大量成本 
 奇士安的咖啡酒能做成芝麻牛奶咖啡，也能加棉花糖做創意甜點咖啡調酒 
